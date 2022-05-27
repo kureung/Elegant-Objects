@@ -6,3 +6,5 @@ http://www.kyobobook.co.kr/product/detailViewKor.laf?ejkGb=KOR&mallGb=KOR&barcod
 
 
 매일 2~3챕터씩 읽어서 토론
+
+스터디 시작일 : 2020-05-24
